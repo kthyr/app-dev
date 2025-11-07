@@ -1,18 +1,18 @@
-# My Favorite Series — *Sweet Home*
+# My Favorite Movie — *The Maze Runner*
 
-**Series:** *Sweet Home*  
-**Genre:** Horror, Drama, Action  
-**Platform:** Netflix  
+**Movie:** *The Maze Runner*  
+**Genre:** Action, Sci-Fi, Mystery  
+**Platform:** Disney+, Netflix
 
 ## Why I Like It
-- The story is thrilling and emotional  
-- Characters show deep development  
-- Visual effects are amazing  
+- The story is full of mystery and excitement  
+- The characters show bravery and teamwork  
+- The plot keeps you guessing until the end
 
 ## Favorite Character
-- Cha Hyun-soo  
-- Lee Eun-yoo  
+- Thomas  
+- Newt
 
-> "Even in darkness, humanity shines the brightest."
+> "If you ain’t scared, you ain’t human."
 
-[Watch Sweet Home on Netflix](https://www.netflix.com/)
+[Watch The Maze Runner on Netflix](https://www.netflix.com/)
